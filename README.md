@@ -1,0 +1,1 @@
+# -Lista-de-Exerc-cios-X---Algoritmos-de-Ordena-o-
